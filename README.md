@@ -1,5 +1,5 @@
 # Hello, I'm Tran Duy Luan! 👋
-I'm a data science student at the University of Economics in Da Nang, Vietnam. 🎓 When I'm not studying or doing homework, you can not find me any where else 🤖. So finđ me when im touching my computer
+I'm a data science student at the University of Economics in Da Nang, Vietnam. 🎓 When I'm not studying or doing homework, you can not find me any where else 🤖. So find me when im touching my computer
 
 A fun fact about me: I am a fish guy  🐟
 
