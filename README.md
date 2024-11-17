@@ -7,7 +7,8 @@
 If you ever want to chat about data science, my work, or even aquariums, feel free to reach out!
 I'm always happy to make new friends and have interesting conversations. 💬
 
-![image](https://github.com/user-attachments/assets/c39f446a-7bac-49f8-ba7b-dad219644d00)
+![image](https://github.com/user-attachments/assets/48112621-0341-40a3-9c60-6ce74e9eee6e)
+
 
 
 
